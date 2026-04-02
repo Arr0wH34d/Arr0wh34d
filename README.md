@@ -7,5 +7,4 @@ simple dni: 18+ (unless known previously), endo 'systems', under 12, trashy humo
 CURRENT main interest is zelda right now, will probably change idk 
 
 
-
 Someone teach me how to put photos here now i want to make it cooler thanks 😂😂✌️
