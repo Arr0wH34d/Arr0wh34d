@@ -4,7 +4,5 @@ DiD sys , bodily 13+
 
 simple dni: 18+ (unless known previously), endo 'systems', under 12, trashy humor, cant handle jokes, ageplayers and so on yeah whatever
 
-CURRENT main interest is zelda right now, will probably change idk 
+CURRENT main interest(s): probably Zelda and pressue?? idk
 
-
-Someone teach me how to put photos here now i want to make it cooler thanks 😂😂✌️
