@@ -6,3 +6,9 @@ simple dni: 18+ (unless known previously), endo 'systems', under 12, trashy humo
 
 CURRENT main interest(s): TLOZ
 
+𑣲F + Z໒꒱ ♡⸝⸝
+
+simple PT stuff:
+🌙 : semi afk / offtab
+
+⛔️ : DNI or DNIUF, name will say
