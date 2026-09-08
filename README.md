@@ -12,10 +12,6 @@ CURRENT main interest(s): TLOZ
 
 
 
-<img width="1200" height="675" alt="image" src="https://github.com/user-attachments/assets/452f26cf-adc0-454f-9bf6-a26099e7c030" />
-
-
-
 simple PT stuff:
 
 🌙 : semi afk / offtab
