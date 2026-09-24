@@ -4,8 +4,6 @@ YOOOO i found out how to do this congratulate me thanks ohh yeah clap those hand
 
 DiD sys , bodily 13+ 
 
-no big dni, we block people if we feel like it
-
 CURRENT main interest(s): TLOZ
 
 𑣲F + Z໒꒱ ♡⸝⸝
